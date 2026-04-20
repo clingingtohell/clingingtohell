@@ -1,37 +1,14 @@
-<img width="2000" height="2000" alt="image" src="https://github.com/user-attachments/assets/b01b214f-4121-4e3f-a483-8dc0224aca74" />
-<img width="2000" height="125" alt="image" src="https://github.com/user-attachments/assets/069cdb7f-da7f-47b2-9cd2-fa795ddf3bfd" />
-<p align="center">
-</br> helloooo !!!! check out my links maybe?
-</p>
-<p align="center">
-<img width="100" height="100" alt="image" src="https://github.com/user-attachments/assets/d1295f82-29b3-47df-b917-5c610fdb39c9" />
+hii this is going to take a good while to update . sorry!! for now, heres basic info ig LMAO
 
-</p>
-<p align="center">
-  <strong>Crow</strong> , <em>any pronouns .</em> she/her <strong>PREFERRED</strong> !! <em>5teen</em><br>
-feel free to sit with me if i have c+h in my name (or if im stting w/someone who has c+h in their name) !! otherwise, please ask to sit with me if we aren't close friends B) 
-    <p align="center">
-  </br>
-<img width="250" height="250" alt="image" src="https://github.com/user-attachments/assets/7eee7611-9ba3-481c-8182-5acc9a4fdcba" />
-</p>
-<p align="center">
-</br> socially anxious but i adore getting to talk to ppl <33 i dont bite, maybe send me a message? id love to interact with more people who share my main fandoms!! im probably smiling at my screen like an idiot just by someone sitting with me or complimenting me (maybe even chatting in general) . mostly w2i since i may be offtab or afk!! dms on disc are welcome as well .
-  </br>
-</br> ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
-</br>
-</br> please note that i may make flirty/freaky jokes, kys jokes, teasing comments, or insulting jokes. i wont really make those jokes unless ive gotten to know you better. i also dont really use tone tags. if i say anything mean pleasee take it as a joke. if you need me to use tonetags, i will!! also pls tell me if you arent comfy w/me making those jokes.
-</br>
-<img width="2000" height="125" alt="image" src="https://github.com/user-attachments/assets/50036b32-24ad-452f-a62e-9657955eeb75" />
-  </br>
-</br> my strawpage (being remade atm !! srry) and rentry have way more info. if youre reading this youre really cool and i hope you have a wonderful day/night!! (unless you're my brother, artemis)  
-    
- 
-<p align="center">
-  <a href="https://github.com/kittinan/spotify-github-profile">
-    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=tq8wtzuuebqahsctvdi8njdlc&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=53b14f&bar_color_cover=false&mode=dark">
-  </a>
-</p>    
+Crow . she/her PREF but any pronouns are fine!!! 5teen ^^
 
-[art creds](https://www.tumblr.com/6kai3/807558927629828097?source=share)
- 
-![Profile view counter on GitHub](https://komarev.com/ghpvc/?username=perisicnikola37)
+
+
+main fandoms rn are homestuck, left 4 dead, warrior cats, markiplier + markiplier cinematic universe
+
+< dirkjake is my otp im normal abt them i swearr . super down to chat with anyone about these fandoms!! id like to chat with more ppl in general but im a wuss SIGHH . dont be afraid to approach me tho im verryyyy friendly promise :3 i love it when ppl talk to me , infact talk to me more. NO you arent talking too much plsss i love it sooo much when ppl talk 2 me
+
+
+i can be jokingly mean but its not normally until we're closer or unless you just match my vibe or somethingg . though do please tell me if i make any jokes or say anything in general that makes you uncomfy!!
+
+anywaysss all of my socials are being remade at the moment theyre all very out of date SORRY!!! if you wanna know something about me just ask :3 
