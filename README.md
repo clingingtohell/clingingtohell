@@ -12,3 +12,5 @@ main fandoms rn are homestuck, left 4 dead, warrior cats, markiplier + markiplie
 i can be jokingly mean but its not normally until we're closer or unless you just match my vibe or somethingg . though do please tell me if i make any jokes or say anything in general that makes you uncomfy!!
 
 anywaysss all of my socials are being remade at the moment theyre all very out of date SORRY!!! if you wanna know something about me just ask :3 
+
+if you h8 me literally just block me its like 2 clicks
