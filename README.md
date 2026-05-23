@@ -5,7 +5,7 @@
 feel free to sit with me if i have c+h in my name (or if im stting w/someone who has c+h in their name) !! otherwise, please ask to sit with me if we aren't close friends :3
    
 <p align="center">
-</br> socially anxious but i adore getting to talk to ppl <33 i dont bite, maybe send me a message? id love to interact with more people who share my main fandoms!! im probably smiling at my screen like an idiot just by someone sitting with me or complimenting me (maybe even chatting in general) . mostly w2i since i may be offtab or afk!! dms on disc are welcome as well . > ( user: clingingtohell ) <
+</br> socially anxious but i adore getting to talk to ppl <33 i dont bite, maybe send me a message? id love to interact with more people who share my main fandoms!! im probably smiling at my screen like an idiot just by someone sitting with me or complimenting me (maybe even chatting in general) . mostly w2i since i may be offtab or afk!! dms on disc are welcome as well . > ( user: cloudy_crow ) <
   </br>
 </br> ▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄▀▄
 </br>
