@@ -55,4 +55,9 @@ $\textit{Tell me "don't", so I can crawl back in.}$
 
 <p align="center"> $\color{rgb(255,195,49)}{\textsf{>>> ──────── .✦➤}}$
 
-<p align="center"> $\scriptsize{\textsf{I love my best pals!}}$  
+<p align="center">
+<img width="629" height="234" alt="image" src="https://github.com/user-attachments/assets/05cb2356-7002-42f3-acc8-e9e7b0b3cbe1" />
+
+
+<p align="center"> $\Huge{\textsf{Crow + Barrel Storage forever}}$<br>
+$\tiny{\textsf{W+B FOREVER}}$
